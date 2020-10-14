@@ -28,3 +28,7 @@ I can meet at 8:30am CST on Wednesday. Does that work for you?
 # Hi feverishhh,
 
 I am in the lobby for your google meet "asking to join".
+
+
+**#feverishhh**: Hey, I am in the meeting room for quite some time now and I have not received any request to admit you in. Are you sure you have joined this link -  https://meet.google.com/qqc-dzpf-tpv?
+XD
